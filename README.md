@@ -1,5 +1,6 @@
 # osci
 Open Science Consortia International
+2012
 
 The objective of creating Open Science Consortia International is to provide equal access and opportunity for promoting science technology and curriculum and accessibility to all sections of the society. The objective of this society is to create equal representation from all sections of the society based on the principles of diversity, inclusion, equal and free access to knowledge. The objective of this society is to create an international framework, where individuals with scientific skills are provided recognition, access to resource, award international recognised degree and provide funding and equal access to all irrespective of the race, religion, caste, creed or nationality. Most importantly, the committee formed to serve specific objective will have equal representation from all race/religion/caste/creed or nationality. All affairs shall be conducted in a transparent manner and establish internationally recognised standards acceptable to all. 
 
